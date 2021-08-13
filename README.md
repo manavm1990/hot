@@ -1,1 +1,1 @@
-# Hot Restaurang
+# 🧑‍🚒 Hot Restaurant
